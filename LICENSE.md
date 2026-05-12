@@ -1,4 +1,4 @@
-# 
+# automatic NFT Sniper for blur sniper bot | flip-strategies & floor-price-tracking is the best blur sniper bot, featuring flip-strategies and floor-price-tracking. Fast, smart, and
 
 
 
